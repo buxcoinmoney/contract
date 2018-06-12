@@ -1,0 +1,2 @@
+# contract
+BUX COIN MONEY CONTRACT CODE
